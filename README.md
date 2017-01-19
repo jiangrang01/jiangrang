@@ -1,1 +1,1 @@
-jiangrang.github.io
+jiangrang
